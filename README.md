@@ -31,4 +31,4 @@ Mit dem ersten Bild kann man sehen welches Tool ich benutzt habe. Im zweiten kan
 
 👎 Das ich nicht so viel gearbeitet habe, weil ich es immer weiter hinausgezögert habe.
 
-Ich möchte für die kommenden Ferien ein Plan erstellen was ich wann mache.
+Ich möchte für die kommenden Ferien ein Plan erstellen wann ich was mache.
